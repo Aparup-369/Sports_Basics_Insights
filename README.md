@@ -18,4 +18,4 @@
 - Power BI – for dynamic and visually compelling data analysis.
 
 ## Connect with Me
-Join me on this journey! Follow [Israr Mohammed](https://www.linkedin.com/in/aparup-mukherjee-18b8021bb/) for more informative posts and insightful dashboards. Thank you for your time! ❤️
+Join me on this journey! Follow [Aparup Mukherjee](https://www.linkedin.com/in/aparup-mukherjee-18b8021bb/) for more informative posts and insightful dashboards. Thank you for your time! ❤️
